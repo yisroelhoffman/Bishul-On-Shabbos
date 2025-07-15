@@ -2,7 +2,8 @@
 
 **Topics discussed:**
 
-- Microwave ovens on Shabbos and Bishul Akum.
+- Microwave ovens on Shabbos.
+- Microwave ovens and Bishul Akum.
 - Hot Packs on Shabbos.
 - Hilchos-Shabbos-Siman-318-Seif-4c.mp3  
   - Grama in Melachos Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  

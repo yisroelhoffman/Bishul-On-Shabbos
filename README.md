@@ -1,9 +1,11 @@
 # Bishul-On-Shabbos
 
-**Bishul-On-Shabbos**
+**Topics discussed:**
 
-Topics discussed:  
-1. Microwave ovens on Shabbos.  
-2. `Hilchos-Shabbos-Siman-318-Seif-4c.mp3`  
-   - Grama in Melachos Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
-   - Makeh BePatish in foods (מכה בפטיש באוכלים)
+- Microwave ovens on Shabbos  
+- Hilchos-Shabbos-Siman-318-Seif-4c.mp3  
+
+<div dir="rtl">
+• גְּרָמָא בְּמְלֶאכֶת שַׁבָּת  
+• מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים  
+</div>

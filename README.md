@@ -13,9 +13,9 @@
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Bishul Akum using a Microwave oven.**
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
-- **Hilchos-Shabbos-Siman-318-Seif-4c.mp3**  
+- **Hilchos-Shabbos-Siman-318-Seif-4c.mp3**
+  - Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים) 
   - Use of Grama Devices on Shabbos (**KosherSwitch, Voice-activated Grama Devices (Alexa), Security Cameras** etc..) (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
-  - Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)
 - **Hilchos-Shabbos-Siman-318-Seif-4d.mp3**  
   - How to make tea on shabbos. 
   - Making iced tea on shabbos by placing a tea bag in a pitcher of cold water.

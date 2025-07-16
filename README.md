@@ -2,6 +2,8 @@
 
 **Topics discussed:**
 
+- Hilchos-Shabbos-Siman-318-Seif-1b.mp3  
+  - Maaseh Shabbos by a Misasek (מעשה שבת במתעסק)
 - Microwave ovens on Shabbos.
 - Microwave ovens and Bishul Akum.
 - Hot Packs on Shabbos.

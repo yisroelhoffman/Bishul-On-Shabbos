@@ -6,7 +6,8 @@
   - Hilchos-Shabbos-Siman-318-Seif-1b.mp3  
 - **Microwave ovens on Shabbos.**
   - Hilchos-Shabbos-Siman-318-Seif-2-3a
-  - Hilchos-Shabbos-Siman-318-Seif-3b 
+  - Hilchos-Shabbos-Siman-318-Seif-3b
+  - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - Microwave ovens and Bishul Akum.
 - **Hot Packs on Shabbos.**
   - Hilchos-Shabbos-Siman-318-Seif-3b

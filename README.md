@@ -19,4 +19,4 @@
 - **Hilchos-Shabbos-Siman-318-Seif-4d.mp3**  
   - How to make tea on shabbos. 
   - Making iced tea on shabbos by placing a tea bag in a pitcher of cold water.
-  - Addinging cooked chicken in hot water that is not on the fireis to make chicken soup on shabbos. (Chasam Sofer OC 74)
+  - Addinging previously cooked chicken to hot water that is not on the fire to make chicken soup on shabbos. (Chasam Sofer OC 74)

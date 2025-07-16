@@ -10,6 +10,7 @@
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Heat Packs on Shabbos.**
   - Hilchos-Shabbos-Siman-318-Seif-3b
+  - - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Bishul Akum using a Microwave oven.**
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Hilchos-Shabbos-Siman-318-Seif-4c.mp3**  

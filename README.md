@@ -14,7 +14,7 @@
 - **Bishul Akum using a Microwave oven.**
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Hilchos-Shabbos-Siman-318-Seif-4c.mp3**  
-  - Grama b'Melachas Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
+  - Use of Grama Devices on Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
   - Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)
 - **Hilchos-Shabbos-Siman-318-Seif-4d.mp3**  
   - How to make tea on shabbos. 

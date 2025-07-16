@@ -2,7 +2,7 @@
 
 **Topics discussed:**
 
-- **Maaseh Shabbos by a Misasek (מעשה שבת במתעסק)**
+- **Maaseh Shabbos b'Misasek (מעשה שבת במתעסק)**
   - Hilchos-Shabbos-Siman-318-Seif-1b.mp3  
 - **Microwave ovens on Shabbos.**
   - Hilchos-Shabbos-Siman-318-Seif-2-3a

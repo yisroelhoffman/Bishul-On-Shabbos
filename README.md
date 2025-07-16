@@ -11,7 +11,7 @@
 - Microwave ovens and Bishul Akum.
 - Hot Packs on Shabbos.
 - Hilchos-Shabbos-Siman-318-Seif-4c.mp3  
-  - Grama by Melachas Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
+  - Grama b'Melachas Shabbos (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)  
   - Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)
 - Hilchos-Shabbos-Siman-318-Seif-4d.mp3  
   - How to make tea on shabbos. 

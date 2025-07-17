@@ -13,6 +13,8 @@
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Bishul Akum using a Microwave oven.**
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
+- **Adding hot water to fully cooked cholent to prevent it from drying out or burning.**
+  - Hilchos-Shabbos-Siman-318-Seif-4a.mp3
 - **Use of Grama Devices on Shabbos (**KosherSwitch, Voice-activated Grama Devices (Alexa), Security Cameras** etc..)**
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3 
 - **Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)**

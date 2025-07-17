@@ -13,7 +13,7 @@
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
 - **Bishul Akum using a Microwave oven.**
   - Hilchos-Shabbos-Siman-318-Seif-3c.mp3
-- **Use of Grama Devices on Shabbos (**KosherSwitch, Voice-activated Grama Devices (Alexa), Security Cameras** etc..) (גְּרָמָא בְּמְלֶאכֶת שַׁבָּת)**
+- **Use of Grama Devices on Shabbos (**KosherSwitch, Voice-activated Grama Devices (Alexa), Security Cameras** etc..)**
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3 
 - **Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)**
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3

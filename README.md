@@ -18,7 +18,7 @@
 - **Makeh BePatish with foods (מַכֶּה בַּפַּטִּישׁ בָּאוֹכְלִים)**
   - Hilchos-Shabbos-Siman-318-Seif-4b.mp3 
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3
-- **Use of Grama Devices on Shabbos (**KosherSwitch, Voice-activated Devices (Alexa), Security Cameras** etc..)**
+- **Use of Grama Devices on Shabbos (KosherSwitch, Voice-activated Devices (Alexa), Security Cameras etc..)**
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3 
 - **Hilchos-Shabbos-Siman-318-Seif-4d.mp3**  
   - How to make tea on shabbos. 

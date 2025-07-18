@@ -24,7 +24,7 @@
   - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
 - **Making iced tea on shabbos by placing a tea bag in a pitcher of cold water**  
   - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
-- **Addinging previously cooked chicken to hot water that is not on the fire to make chicken soup on shabbos.**
+- **Adding previously cooked chicken to hot water that is not on the fire to make chicken soup on shabbos.**
   - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
   - Chasam Sofer OC 74
 - **Coloring food on Shabbos**  

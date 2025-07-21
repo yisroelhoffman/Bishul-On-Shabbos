@@ -20,7 +20,14 @@
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3
 - **Use of Grama Devices on Shabbos (KosherSwitch, Voice-activated Devices (Alexa), Security Cameras etc..)**
   - Hilchos-Shabbos-Siman-318-Seif-4c.mp3 
-- **Hilchos-Shabbos-Siman-318-Seif-4d.mp3**  
-  - How to make tea on shabbos. 
-  - Making iced tea on shabbos by placing a tea bag in a pitcher of cold water.
-  - Addinging previously cooked chicken to hot water that is not on the fire to make chicken soup on shabbos. (Chasam Sofer OC 74)
+- **How to make tea on shabbos**  
+  - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
+- **Making iced tea on shabbos by placing a tea bag in a pitcher of cold water**  
+  - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
+- **Adding cooked chicken to hot water not on the fire to make chicken soup on shabbos.**
+  - Hilchos-Shabbos-Siman-318-Seif-4d.mp3. 
+  - Chasam Sofer OC 74
+- **Coloring food on Shabbos**  
+  - Hilchos-Shabbos-Siman-318-Seif-4e.mp3.
+- **Adding cold or hot water to a Humidifier on Shabbos**  
+  - Hilchos-Shabbos-Siman-318-Seif-4e.mp3 
